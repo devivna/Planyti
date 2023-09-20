@@ -1,0 +1,2 @@
+# Planyti
+Privacy Policy
